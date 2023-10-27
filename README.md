@@ -1,2 +1,4 @@
 # Funny
-Funny images
+
+Funny images (😁)
+
